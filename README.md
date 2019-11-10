@@ -7,5 +7,9 @@ Parque lago es un parque totalmente gratuito donde se puede encontrar espacios c
  
  Ofrece una variedad de platos ya sea desayunos , almuerzos, postres, snacks, bebidas.
  Por ejemplo:  
-        
+- Empanadas 
+- patacones con queso  
+- Tostadas y batidos 
+
+- etc. 
         
